@@ -1,0 +1,2 @@
+# kamu
+buat kamu
